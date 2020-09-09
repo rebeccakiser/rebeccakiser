@@ -1,6 +1,6 @@
 
-layout: post
-title: About Me
+#About Me
+
 ![Profile Picture](rebeccakiser.github.io/images/profile.md)
 
 Well hello there! 
