@@ -1,7 +1,7 @@
 
 # About Me
 
-![Profile Picture](rebeccakiser.github.io/images/profile.md)
+![Profile Picture](rebeccakiser.github.io/images/IMG_4272.JPG)
 
 Well hello there! 
 
