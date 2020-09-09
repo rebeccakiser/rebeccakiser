@@ -13,4 +13,4 @@ I want to work in writing and media in whatever avenue becomes available to me, 
 
 For the past two years I have worked as a manager at a **non-profit coffee shop** in Chesapeake, VA called [Gather](https://gathercafe.net/). Over that time, I grew a massive love for coffee in all it’s fabulous forms. When I’m not in class, I’m most likely sipping on something caffeinated and pretending to be doing school work in my favorite coffee shop. This Fall has already brought so many wonderful changes so I’m excited to see what this semester has to offer!
 
-
+Follow my academic [Twitter](https://twitter.com/Rebecca06565731) or contact me at rebecca.kiser.19@cnu.edu
