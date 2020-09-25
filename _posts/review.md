@@ -1,4 +1,4 @@
-# A review of Prohibition: An Interactive History
+# A Review of Prohibition: An Interactive History
 
 Prohibition: An Interactive History
 By the Museum of Organized Crime and Law Enforcement
